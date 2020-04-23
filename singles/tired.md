@@ -1,0 +1,56 @@
+Tired by Geek Foolish
+All Rights Reserved 2020
+
+Verse 1
+I woke up this morning while Yawning
+I reached for my phone and my president is talking
+reckless on twitter
+It might seem crazy but I really think my own personal problems are bigger
+Now go figure
+see what would that entail?
+I need more intel before I show and tell
+I need y’all to feel the same pain that I felt
+I need y’all to understand why Kapernick knelt 
+well I understand people don't get it
+and I understand people don't care
+So I looked up fairness in the dictionary
+to my surprise the word wasn't there then I woke up
+rolled out of bed, still groggy from the pink pills
+Got some sunlight while sitting on the window sill 
+But honestly, I don’t got the will
+I’m kinda tired, and I just want to chill.
+
+Chorus
+I’m tired, I just want to chill today
+I said I’m tired. I just want to chill
+I said I’m tired, I just want to chill today
+I said I’m tired. I just want to chill
+
+Verse 2
+I woke up this evening with
+no plans for the weekend
+no plans for live streaming
+it’s just how I’m feeling
+a lot of people fight that
+geek foolish never fight back
+mumble rap mumble rap
+geek foolish never writes that
+yea and that’s the difference between me and you
+between us and them
+between her and him
+yea, they call us freaks and we embrace it. Foolish Geeks.
+Hashtag it. Then search for it this week
+cause at the end of the day
+whether win or lose
+I’m just happy with the fact that I got to choose
+cause I can’t be me if I’m trying to be you
+and no one in this world can do what you do, so I
+rolled out of bed, still groggy from the pink pills
+saw a shooting star while sitting on the window sill 
+But honestly, I don’t got the will
+I’m kinda tired, and I just want to chill
+
+chorus
+
+bridge
+I know, I know, but I just don't know anymore
