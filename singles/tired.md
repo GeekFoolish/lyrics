@@ -2,6 +2,8 @@
 
 All Rights Reserved 2020
 
+Listen to Tired on [Spotify](https://open.spotify.com/album/2z6zwL5PWW40xN05aXBTdM), [Apple Music](https://music.apple.com/us/album/tired-single/1496576551), or [Bandcamp](https://geekfoolish.bandcamp.com/track/tired)
+
 ### Verse 1
 
 I woke up this morning while Yawning <br>
