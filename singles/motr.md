@@ -26,10 +26,10 @@ How could go I go down the middle of the road <br>
 How could I go down the middle of the road when the middle of that road goes over <br>
 
 ### Verse 2
-I have a lot of anxiety <br> 
+I have a lot of anxiety <br>
 I ain’t afraid to admit it <br>
 Go ahead and show your true colors <br>
-they probably still won’t get it <br> 
+they probably still won’t get it <br>
 And it’s fine if they don’t understandi <br>
 just always be yourself <br>
 Cause you can’t be the best you <br>
