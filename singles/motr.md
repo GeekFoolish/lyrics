@@ -1,4 +1,5 @@
 # Middle of the Road
+All Rights Reserved 2018
 
 ### Verse 1 
 I’m acting all out of character <br>
